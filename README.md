@@ -1,5 +1,5 @@
-Discord : https://discord.gg/C3aN2bBVbB
+Discord : N/A
 
 <img src="https://i.imgur.com/dAXlTSs.png">
 
-Vidéo : https://youtu.be/AD0ieZUmFAE
+Vidéo : https://youtu.be/rbSGUh9YIjc
